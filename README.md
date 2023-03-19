@@ -101,13 +101,13 @@ https://drop.com/mechanical-keyboards/home
 
 Drop is a pretty big player in the custom keeb world, albeit with a bit of a controversial history. Be sure to only buy their ready to ship stock. 
 
+https://kprepublic.com/
+
+Great seller, I bought an sp50 case for my keeb.io Nyquist from them, it took about a month to get to me though. 
+
 https://kbdfans.cn/
 
-A great seller based out of China, I haven't purchased from them before.
-
-https://kbdfans.cn/
-
-Another great seller based out of China, have purchased from them before and shipping took quite a while.
+A great seller based out of China, have purchased from them before and shipping wasn't bad, I want to say it took about 2 - 3 weeks for me to get my order. 
 
 https://keeb.io/
 
